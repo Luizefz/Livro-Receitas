@@ -4,3 +4,5 @@ Dalle mano! Bem vindo ao meu livro de receitas! :wave:
 
 - Lasanha de Carne
 
+- Bolo de Rolo
+- Farofinha brasileira
